@@ -2,4 +2,4 @@
 
 Hiya!
 
-My name is Akshita, I don't know where I'm in five, but I'm young and alive; to hell what they're saying, what a life!
+My name is Akshita, I am a first year BTech student at IIT Indore.
